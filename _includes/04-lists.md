@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* Rich Dad Poor Dad
+* Think and Grow Rich
+* The lean Startup
